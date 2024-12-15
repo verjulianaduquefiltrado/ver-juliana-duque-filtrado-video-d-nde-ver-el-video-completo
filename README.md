@@ -2,7 +2,15 @@
 
 En los últimos días, la influencer colombiana Juliana Duque se ha convertido en tendencia debido a la filtración de videos íntimos, lo que generó un notable incremento en las búsquedas relacionadas con su vida personal, en particular sobre su biografía y su edad.
 
-Juliana Duque: quién es y su biografía en Wikipedia
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+
 Juliana Duque, hoy de 15 años de edad, según lo reveló ella, nació en 2009 en Colombia. Es conocida por su presencia en plataformas como TikTok, donde publica videos que combinan música de fondo, principalmente de reguetón, con anécdotas o bromas. En algunos clips aparece sola, mientras que en otros está acompañada por amigos, siempre manteniendo un tono ligero y juvenil.
 
 La viralización de los videos íntimos comenzó en foros y grupos cerrados, pero se expandió rápidamente a plataformas públicas. Foto: Tikok Juliana Duque
